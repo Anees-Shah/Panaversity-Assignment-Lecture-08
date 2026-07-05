@@ -1,0 +1,1 @@
+Well, I am credit officer at a bank, so I am not allowed to use bank's data, although my wife is managing a 3D pixar style animated Instagram page, so I created SKILL file for her to generate thumbnails.
