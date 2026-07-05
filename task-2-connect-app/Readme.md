@@ -1,0 +1,1 @@
+I granted full permission to Claude AI for my Gmail account, and asked "Please review my last 3 days emails and generate a 200 words summary", screen shot of the result and written results are uploaded in this github folder.
